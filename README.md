@@ -1,0 +1,4 @@
+- 👋 Hi, I’m 失魂魚 @satwanjyu
+- 👀 I’m interested in mobile development
+- 🌱 I’m currently learning Android
+- 📫 How to reach me satwanjyu@outlook.com
